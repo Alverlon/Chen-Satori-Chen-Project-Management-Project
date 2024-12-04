@@ -1,1 +1,1 @@
-# Chen-Satori-Chen-Project-Management-Project
+# Chen-Szatori-Chen-Project-Management-Project
